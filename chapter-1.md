@@ -1,0 +1,37 @@
+Kazuma shoved open the heavy oak doors of the guild hall, clutching the damp sanitation voucher like a shield against the cruel world.
+He was bracing for the usual Axel welcome: the smell of spilled ale, the roar of drunken bar fights, someone getting thrown through a window, and maybe a flying ham bone.
+Instead, a suffocating, eerie hush hung over the entire room.
+Nobody was shouting. Nobody was smashing chairs. The long wooden benches were packed with the usual crowd—scarred brawlers, hairy berserkers, leather-clad rogues, and towering axe-wielders—but they were all sitting in bizarre, rigid postures, leaning across the tables in hushed, agonizing concentration.
+Kazuma froze on the threshold, his dirty sneakers glued to the floorboards.
+"What... what is happening?" Kazuma whispered, cold sweat beading on his temple. "Did someone die? Did the Demon King send a plague of silence?"
+To his left, in the corner booth, sat two of the roughest mercenaries in the southern district. One was a seven-foot-tall, bald mountain of muscle named Boris, whose face looked like it had lost an argument with an iron plow. Opposite him was a scruffy, one-eyed cutpurse who usually spent his afternoons picking fights in back alleys.
+Boris was leaning forward. He had clasped his massive, calloused, ham-hock hands together atop the greasy table. He tilted his shaved head, squinting with an expression that was clearly meant to look ancient and sorrowful, but instead made him look like he had swallowed a live wasp.
+"Umu..." Boris grumbled, his voice sounding like two millstones grinding gravel as he tried desperately to lower his pitch into a silky hum. "You took the front row against the goblins, Gort. And you took a mace to the shins."
+Gort blinked his single eye, sweating profusely, gripping his dagger under the table. "B-Boris? Why are you talking like that? Did you get a concussion?"
+Boris didn't blink. He reached out with a gigantic, scarred paw, picked up a cold, boiled turnip from a wooden trencher, and held it out with trembling, delicate care.
+"Don't be cruel to your body, Gort," Boris rumbled softly, trying to paste a warm, serene smile onto his scarred face. "You're a thief, Gort... but you are still a person. Eat your turnip."
+Gort’s one eye went wide with pure, unadulterated terror. He pressed his back flat against the wooden divider, trembling. "Boris, please, I didn't steal your silver! Don't murder me! Why are you offering me root vegetables like a grandfather?!"
+"I said eat the turnip," Boris hissed through clenched teeth, his serene elven smile violently twitching as a vein bulged on his bald forehead. "Eat the turnip. Good boy."
+"HELP! HE’S LOST HIS MIND!" Gort shrieked, knocking his chair over backward and scrambling across the floorboards on all fours.
+Kazuma’s jaw dropped so low it nearly hit his chest.
+Before he could process the sheer horror of what he had just witnessed, a soft, pathetic click echoed from the bar counter.
+Over by the ale taps, a scarred brawler in spiked leather armor was leaning against the wood, trying to corner Emmy, the junior barmaid. The brawler had puffed out his chest, thrown one arm lazily over an empty stool, and lowered his chin in what he clearly thought was an aloof, aristocratic posture.
+"Emmy," the brawler murmured, snapping his thick, dirty fingers in her face with a clumsy, hollow thump. "Heel. Come here."
+Emmy, who was holding a heavy iron tray of clean glass tankards, stared at him. Her face went completely blank, her eyes turning into cold, dead glass.
+"Did you just whistle at me like a hound, Keith?" Emmy asked, her voice dropping into a deadly whisper.
+"You've been carrying trays through the hall all morning without a break," Keith said, trying to force his rough voice into a soothing, elder-brother purr as he reached out with greasy fingers toward her hair ribbons. "A hard worker deserves gentleness, not—"
+CRACK.
+Emmy brought the heavy iron tray down directly across the bridge of his nose.
+Keith dropped to the sawdust like a felled timber log, groaning and clutching his bleeding face while the barmaid wiped the edge of the tray on her apron with a furious, disgusted spit.
+"Perverts!" Emmy yelled at the groaning mercenary. "The whole lot of you! What is wrong with the men in this town today?!"
+Behind Kazuma, Aqua poked her head through the doorway, her hair ribbons still damp and smelling faintly of mint. She blinked her large blue eyes, taking in the bruised mercenaries and the hushed, whispering tables.
+"Kazuma," Aqua gasped, clutching his green cloak. "What is this foul, unnatural atmosphere? Are they holding a somber memorial service in honor of my suffering in the drainage pipes? Have the mortals finally recognized my divine sacrifice with quiet reverence?"
+"No, you blue idiot," Kazuma croaked, his hands beginning to shake as the terrifying, grotesque truth slammed into his brain. "It’s him. It’s that damn elf."
+Darkness clanked up the front steps, carrying Megumin securely on her back. She stopped beside Kazuma, her golden eyes darting between Boris clutching a cold turnip and Keith bleeding on the floorboards.
+A sharp, violent shudder ran through Darkness’s armored frame. Her nose wrinkled in profound, curdling disgust.
+"Foul..." Darkness whispered, her voice trembling with venomous disdain. "Look at them... their posture is atrocious! Their fingers are thick as sausages! When they utter those sacred words of restraint, there is no aristocratic chill... no suffocating, velvet elegance... It's just coarse, hairy brutes trying to domesticate people with garden vegetables! It's an insult to the art of degradation!"
+"They witnessed Sir Sylas," Megumin declared solemnly from Darkness's shoulder, adjusting the brim of her wizard hat with a look of supreme, pitiless superiority. "They watched an ancient high elf tame the most deranged crusader in the kingdom using nothing more than a bowl of soup, a gentle comb through the hair, and two syllables of absolute authority. The simple-minded brawlers of Axel believed they could harness that terrifying arcane dominion for themselves. They failed to realize that the illusion of divine patience requires centuries of refinement, not greasy knuckles and boiled roots."
+Kazuma gripped the stamped 100,000-eris voucher until the parchment creaked in his fist.
+He didn't make eye contact with a single person in the room. He didn't look at Boris. He didn't look at Keith. If an eight-foot barbarian walked over to him, patted his greasy hair, and called him a 'good boy,' Kazuma knew with absolute certainty that his remaining sanity would shatter into dust and he would spend the rest of his life living in the woods with the giant toads.
+Kazuma lowered his head, locked his eyes onto the floorboards, and broke into a dead, frantic sprint straight toward the guild registry counter.
+"Luna!" Kazuma yelled, slamming the yellow sanitation parchment flat against the mahogany wood before the desk clerk could even look up. "One hundred thousand eris! Public works emergency contract! Cash it out right now! Take forty-eight thousand for my jail bail, take the rest to pay off the elf's tab, and give me whatever coppers are left before one of these meatheads tries to feed me a parsnip!"
